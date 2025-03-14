@@ -1,8 +1,8 @@
 # mklsbhsh-python-project
 License Verification Service
 
-Hi, I hope you're well. Can you please message me on my whatsApp to discuss this project further? 
+can we contact on email so we can discuss the payment there? As, fiver will deduct 20% of my amount+ fee from yours and my side both.
 
-WhatsApp: **+447440405595**
+So, we can do that through PayPal or Wise/Remitly to save that. How does that sound?
 
-I have to create a group there so we can communicate there as a group so you will kept updated about that.
+this is my email->   sendtokamran0@gmail.com
